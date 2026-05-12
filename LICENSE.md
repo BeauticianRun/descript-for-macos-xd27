@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Descript for macOS plugin with Descript for macOS professional Plugin: glitch-effect & 4K-export. Featuring glitch-effect and 4K-export, it's the best choice for
 
 
 
